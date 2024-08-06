@@ -1,5 +1,5 @@
 # ☽ 𝚊𝚋𝚘𝚞𝚝 𝚖𝚎
-Yo! You can call me 'Lua'! (*＾▽＾)／<br><br>I'm passionated about Data, Analytics and Problem Solving ٩(^ᴗ^)۶ <br>★ Love puzzles and logical games ('sudoku' and 'solitaire' fan)<br>And my favorite hobbies are playing sports, exercise at the gym, playing comfy videogames and listen to music.<br><br>I love to live and aprecciate other people lives!<br>
+Yo! You can call me Lua! (*＾▽＾)／<br><br>I'm passionated about Data, Analytics and Problem Solving ٩(^ᴗ^)۶ <br>★ Love puzzles and logical games (sudoku and solitaire fan)<br>And my favorite hobbies are playing sports, exercise at the gym, playing comfy videogames and listen to music.<br><br>I love to live and aprecciate other people lives!<br>
 
 
 ## (^ᴗ^) 𝚜𝚘𝚌𝚒𝚊𝚕𝚜
